@@ -33,8 +33,4 @@ Video Tutorial for config : https://www.youtube.com/watch?v=F4uyw47OlJI
 
 Visit our site : http://voidthemes.com 
 
-
-If you want more customized option / The Pro Version don't hesitate to contact me here or on : dranger2011@gmail.com
-
-
-By- Soyket Chowdhury, AIUB, CSE
+If you want more customized option / The Pro Version don't hesitate to contact me here.
